@@ -2,7 +2,7 @@
 - 👀 I’m interested in almost erverything and anything 
 - 🌱 I’m currently learning and evolving
 - 💞️ I’m looking to collaborate on what i find interesting or capable
-- 📫 How to reach me discord Absilon13
+- 📫 How to reach me, use discord then search for Absilon13
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
